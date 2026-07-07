@@ -4,6 +4,7 @@ muốn học dev web 3 cần những gì?
 
 học ở đâu? đi làm mạng nào về web 3 ?
 
+SDS VSDV SDV SDSDD SD SD SD SD SD
 
 cretor acc github vs X 
 
